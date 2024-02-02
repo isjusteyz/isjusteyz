@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @isjusteyz
-- 👀 I’m interested in furrys
+- 👀 I’m interested in tu mamá
 - 🌱 I’m currently learning C#
-- 💞️ I’m looking to collaborate on NVIDEA
+- 💞️ I’m looking to collaborate on no 
 - 📫 How to reach me: **isjusteyz** on discord
 
 <!---
